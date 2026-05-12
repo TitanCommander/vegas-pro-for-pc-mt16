@@ -1,4 +1,4 @@
-# 
+# vip Vegas Pro for PC | Vegas Pro for Windows Template | proxy-editing + collaboration-tools offers the most advanced Vegas Pro for PC | Vegas Pro for Windows template, with
 
 
 
